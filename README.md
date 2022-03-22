@@ -1,2 +1,3 @@
 Hi there, I'm manzoor Sofi
-Get in touch https://www.linkedin.com/in/manzoor-sofi
+
+Get in touch:- sofimanzoor888@gmail.com
